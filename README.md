@@ -1,1 +1,1 @@
-Bro this shit is so confusing
+https://www.patreon.com/6vrse NOW
